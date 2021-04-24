@@ -19,4 +19,4 @@ The electromagnetic faculty, of course, _tolled us that everything was easy_ any
 - _____ are funny. If we didn't _____, we'd _____ with what we have to deal with.
 - My parents wanted me to be a _____ or a _____, but I wanted to be a _____.
 - Really?
-- My only interest is _____.
+- My only interest is _Electromagnetic field ||_.
