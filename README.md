@@ -14,9 +14,9 @@ The electromagnetic faculty, of course, _tolled us that everything was easy_ any
 - You're _a_liar___!
 - I'm so sorry.
 - No, it's OK. It's _____. I know I'm _____. But I don't recall going to _____.
-- Well, I'm sure this is very _____.
-- This is a bit of a surprise to me. I mean, you're a _____! I'm talking to a _____. And the _____ is talking to me!
-- _____ are funny. If we didn't _____, we'd _____ with what we have to deal with.
-- My parents wanted me to be a _____ or a _____, but I wanted to be a _____.
+- Well, I'm sure this is very exciting.
+- This is a bit of a surprise to me. I mean, you're a football player! I'm talking to a football player. And the player is talking to me!
+- Jokes are funny. If we didn't joke, we'd die with what we have to deal with.
+- My parents wanted me to be a doctor or a lawyer, but I wanted to be a football player.
 - Really?
-- My only interest is _Electromagnetic field ||_.
+- My only interest is football. 
